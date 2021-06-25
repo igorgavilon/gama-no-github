@@ -1,2 +1,2 @@
 # Gama no Github
-Curso muito bacana!
+Curso muito bacana! :dog:
